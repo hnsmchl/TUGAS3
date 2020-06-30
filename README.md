@@ -2,4 +2,4 @@
 
 ### halo kak prima, ada linenya kah? hehe
 
-### coba "Prima W" atau "089629928764" bisa ga ?
+### coba "XXXX" atau "XXXX" bisa ga ? Udah ya, gw hapus aja hehe, thank you
